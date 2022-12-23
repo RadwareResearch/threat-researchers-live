@@ -168,7 +168,7 @@ https://twitter.com/jeffstone500/status/1568233291114860544
 
 --
  
-Subscribe to our newsletter: http://click.revue.email/ss/c/XN2t88CAhalHja1RClwc6nfV-nStt3kVsgZH5NOVlm32KvDBOY7jz2DX0XZYzk7V83ghe6w8JuIO3Tw2elHfxOYxXRU4l76ynb2BW_EZeHr0UGIKV2FNi-uyXITSsQo85tMb8JosSXKKgKYwOeEl3K3Nmh4RFisnE5emuqTHSs0y_V9uohWvFXe29Nv3i7aJcoha0bb2OmpM5_z-H3FPLw/3o5/J5TFTjeEQzGd-rmqOn3ecQ/h48/ETeb85d1kdl4pY4YqQlyTB5IX3chWKxlGfSPAzsulvI
+Subscribe to our Newsletter: https://radware.substack.com/
 
 Follow us on Twitter: https://twitter.com/RadwareResearch
 
